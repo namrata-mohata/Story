@@ -1,0 +1,1 @@
+There was a thirsty crow.He was looking for water.He saw a pot with very less ater.He started putting pebbles to oit.Water came up .He drank it and flew away
